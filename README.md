@@ -1,7 +1,3 @@
-Here’s a GitHub‑ready Markdown SEO introduction article for the domain **[nufcshopuk.com](https://nufcshopuk.com)**:
-
----
-
 # ⚫⚪ Discover Authentic ‎Newcastle United Gear at [nufcshopuk.com](https://nufcshopuk.com)
 
 Welcome to **[nufcshopuk.com](https://nufcshopuk.com)** – your ultimate destination for everything Magpies 🖤⚪
